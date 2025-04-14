@@ -12,7 +12,7 @@
 
    * Professor: [Sanjay Garje](https://www.linkedin.com/in/sanjaygarje/)
    
-   * Student: [Akash](https://www.linkedin.com/in/anu-rajashekar-4b950092/)
+   * Student: [Akash](https://www.linkedin.com/in/me-akash77/)
    
    # PROJECT IDEA
 
